@@ -1,5 +1,5 @@
 # 💫 About Me:
-Im Shayan and im a Front-End Developer ❤️🚀
+This is where I put the things I Cook 🚀 
 
 
 ## 🌐 Socials:
